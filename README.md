@@ -14,4 +14,7 @@ Hello there, how you feelin. Im Minjun, aka Trevor. I'unno why my github name is
 
 I created this account to upload whatever I made.
 
+And Im not that good at hacking.
+Just for fun.
+
 So let's begin.
